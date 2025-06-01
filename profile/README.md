@@ -6,8 +6,8 @@ For years, I thought being tired, gaining weight, and feeling achy was just part
 Every morning felt like a battle—stiff knees, zero energy, and clothes that didn’t fit like they used to.
 
 Even simple joys—like walking at the zoo with my grandkids—became too much.  
-I had to sit out. Again.  
-Smiling on the outside… but heartbroken inside.
+I had to sit out.  
+Smiling on the outside again… but heartbroken inside.
 
 I thought I was just “too old” to feel any different.  
 But then something surprising happened…
@@ -22,7 +22,8 @@ Takes **7 seconds**. No workouts. No weird diets.
 
 I was skeptical, but curious.
 
-And guess what?  
+And guess what?
+
 A few weeks in, I felt like *me* again.  
 My jeans fit better. I had energy. My knees stopped screaming.  
 I even caught myself dancing in the kitchen!
